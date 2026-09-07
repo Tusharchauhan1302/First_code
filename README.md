@@ -1,3 +1,3 @@
 This is just the learing repo
 <br>
-admin- Tushar chauhan
+admin- Tushar chauhan(Male)
